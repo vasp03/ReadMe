@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with everthing...
 - 💬 Ask me about nothing
 - 📫 How to reach me: email
-- ⚡ Fun fact: no u
+- ⚡ Fun fact: no 
 
-https://giphy.com/gifs/glitch-alphabet-font-3osxY9kuM2NGUfvThe
+![Alt Text](https://giphy.com/gifs/glitch-alphabet-font-3osxY9kuM2NGUfvThe)
