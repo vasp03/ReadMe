@@ -8,4 +8,4 @@
 - 📫 How to reach me: email
 - ⚡ Fun fact: no 
 
-![alt text](https://giphy.com/gifs/glitch-alphabet-font-3osxY9kuM2NGUfvThe)
+![alt text](http://img.izismile.com/img/img5/20120406/1000/hilarious_obama_animated_gifs_07.gif)
