@@ -9,4 +9,4 @@
 - ⚡ Fun fact: no 
 
 ![alt text](http://img.izismile.com/img/img5/20120406/1000/hilarious_obama_animated_gifs_07.gif)
-![alt text](https://giphy.com/embed/lqwcYeLIvQSUcSf6nP.gif)
+![alt text](https://media.giphy.com/media/lqwcYeLIvQSUcSf6nP/giphy.gif)
